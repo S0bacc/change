@@ -1,1 +1,1 @@
-# change
+Do you invest in anything and what do you think about crypto investments? Now these are important questions that many people ask themselves, and if you do decide to try something new, I advise you to start with [NovaChange.cc](https://www.novachange.cc/). The crypto exchange provides the best rate, and in addition, a system of discounts for registered users to make crypto trading even more profitable.
